@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nadine333
+- 👀 I’m interested in Media and Arts
+- 🌱 I’m currently learning Interactive Media
+- 💞️ I’m looking to collaborate on Animation Directing
+- 📫 How to reach me: https://labibnadine.myportfolio.com/welcome
